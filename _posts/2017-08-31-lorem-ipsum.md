@@ -1,5 +1,5 @@
 ---
-layout: single
+layout: default
 title: "33"
 tags: tag1 tag2 tag3 tag4
 ---
