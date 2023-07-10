@@ -4,8 +4,19 @@ title: "Lorem Ipsum"
 tags: tag1 tag2 tag3 tag4
 ---
 
-## Lorem Ipsum
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Proin enim nibh, suscipit sed rhoncus quis, blandit quis sapien. Ut congue pharetra rhoncus. Praesent finibus vitae urna quis cursus. Proin mollis elementum sapien, vitae viverra magna tincidunt a. Nullam tincidunt interdum dui ut ultricies. Maecenas pellentesque tellus ac mauris faucibus elementum. Nulla quis risus aliquam, pharetra neque non, dapibus augue. Vestibulum ante ipsum primis in faucibus orci luctus et ultrices posuere cubilia Curae; Cras ullamcorper lacinia augue in placerat. Suspendisse lacinia massa id blandit varius. Mauris ultricies ultricies bibendum.  
-
-Mauris eu lectus fermentum leo dictum hendrerit. Maecenas vel leo sit amet quam laoreet consequat vitae nec eros. Curabitur eleifend eu orci quis consectetur. Sed pretium tortor at consequat tincidunt. Nullam a tellus faucibus, dapibus tortor eget, ullamcorper metus. Aenean at aliquet metus. Aenean molestie metus rutrum, tincidunt nulla quis, tincidunt lorem. Morbi diam sem, rutrum vitae convallis eget, dignissim semper lacus. Curabitur ipsum diam, tincidunt in hendrerit sit amet, luctus vitae dui. Lorem ipsum dolor sit amet, consectetur adipiscing elit.
+종수에게
+이번이 마지막 편지일 거야
+딸에게 좋은 아빠가 뭔지 모르겠어
+아직 십 년은 더 남았지만 그 애가 이십대의 나처럼 자라면 어떻게 지도해야 할지도 모르겠고
+육아도 한 번쯤은 나쁘지 않은 경험이라고 하면 네가 비웃겠지?
+그 애 이름은 종수가 아니지만 무심결에 그렇게 불러버릴 때가 있어
+어제는 창가에서 담배를 피우는데 문 뒤에서 지그시 지켜보지 뭐야
+애를 위해서라도 끊어야 되는데 잘 안 돼
+그래도 하나씩 버려보고 있어
+종수야
+네가 살아보지 못한 미래를 내가 대신해서 보고 싶어
+이런 마음을 갖고 누군가를 키운다는 건 나쁜 일일까
+그렇지만 나는 이제야 내가 왜 살아 남았는지 알 것 같다
+나 오늘 이사해
+안녕
+너무 오래 붙잡아 두었던 것을 사과할게
