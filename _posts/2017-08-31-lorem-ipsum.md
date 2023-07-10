@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "Lorem Ipsum"
+title: "33"
 tags: tag1 tag2 tag3 tag4
 ---
 
